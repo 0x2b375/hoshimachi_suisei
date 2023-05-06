@@ -1,2 +1,0 @@
-# hoshimachi_suisei
-test
